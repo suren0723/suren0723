@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @suren0723
-- 👀 I’m interested in Molecular biology, Immunology,bioinformatics 
+- 👀 I’m interested in Molecular biology, Immunology,bioinformatics, biotechnology,food technology.
 - 🌱 I’m currently learning Masters in biotechnology
-- 💞️ I’m looking to collaborate on new projets where freshes are demand 
+- 💞️ I’m looking to collaborate on new projets where freshes are demanded
 - 📫 How to reach me through mail- surenjoe2307@gmail.com
 - my Instagram id- Cristiano__suren 
 
